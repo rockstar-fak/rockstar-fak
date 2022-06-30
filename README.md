@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rockstar-fak
 - 👀 I’m interested in ... Music kinda alternative rap, bitches, money
-- 🌱 I’m currently learning ... front end development
+- 🌱 I’m currently learning ... how to work freelance
 - 💞️ I’m looking to collaborate on ... video games topics and whaterver you need
 - 📫 How to reach me ... here!
 
